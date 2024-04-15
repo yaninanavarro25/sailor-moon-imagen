@@ -1,1 +1,1 @@
-# ejercicios-1
+# imagen
